@@ -10,7 +10,7 @@ We've rounded up the latest [Hostinger coupon codes](https://hostinger.in/?REFER
 
 [![|602x84](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcxUH99BPipbB6wmxz1f0iHxKB7wDSuZI2spxUnnT8Nop8VVhimTJdkaT1G_7K6oeNk1p5clw5fZHpe9_imx1OvmyyzfZiQR62kRhzNbdLus1QKvgrUs_c7bn8AGquTIoGwed_xdg?key=AkYIaNJTkQe2xRUy_6UVRA)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
 
-## Verified Hostinger Coupons (June 2025)
+## Verified Hostinger Coupon Codes (2025)
 
 |Coupon Code|Discount|Description|Status|
 | --- | --- | --- | --- |
